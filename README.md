@@ -1,1 +1,1 @@
-https://Fozz1k.github.io/itstep-cv/cv
+https://frozz1k.github.io/itstep/cv
